@@ -7,4 +7,7 @@ Link to the Slides
 
 Please add your name below:
 - Dhrumil Mehta
-Dhrumil Mehta
+- Zoya
+- Judy
+- Miles
+- Everyone else
